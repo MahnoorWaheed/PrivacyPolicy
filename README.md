@@ -1,0 +1,2 @@
+# PrivacyPolicy
+ScreenSkin Privacy Policy
